@@ -1,2 +1,4 @@
 # Brad Croisdale
-Hey y'all I am Brad-o
+## General Manager of TexTen Printing Supplies
+## Real Estate Executives
+Tha End
